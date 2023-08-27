@@ -1,4 +1,5 @@
-# TGAS-PROXY-SERVERS
+# We are on break right now 
+## TGAS-PROXY-SERVERS
 You will receive every proxy link that is functional and not blocked. If it gets blocked then contact me on discord KeyMermaid31333#1388.We will release at least 5 links a week. We are on summer break right now.
 
 [1st Link](https://design.scottexteriors.com/)
